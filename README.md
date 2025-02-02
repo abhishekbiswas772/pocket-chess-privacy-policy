@@ -1,0 +1,1 @@
+# pocket-chess-privacy-policy
